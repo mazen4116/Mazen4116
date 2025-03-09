@@ -17,3 +17,10 @@ https://cdn.discordapp.com/attachments/1206336564100333599/1347636298340368445/M
 ماب الغروب 
 https://www.mediafire.com/file/pbu5rwcbgqnxiq1/Drive_20K_By_iiMoov.zip/file
 
+تشارجر 
+
+https://cdn.discordapp.com/attachments/1206336564100333599/1335230882251931648/M7_CHARGER13.zip?ex=67cee029&is=67cd8ea9&hm=9a05ecc44f0f313d31dd69e7f674bee73264ae3b7633b28125814114e0646070&
+
+
+
+
