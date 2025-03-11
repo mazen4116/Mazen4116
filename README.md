@@ -26,5 +26,10 @@ https://www.mediafire.com/file/pbu5rwcbgqnxiq1/Drive_20K_By_iiMoov.zip/file
 
  كروز تشنيقق 
 https://sharemods.com/klqulh30jl9t/cruze16.zip.html#google_vignette
+كامري ٢٥
 
 https://www.mediafire.com/file/1sznpx7tkc7p6ov/camry25_by_Meto_and_iEviil.zip/file
+
+اكسنت مفجوره
+
+https://modsfire.com/3ECTcCs4GdG7XVw
