@@ -27,4 +27,4 @@ https://www.mediafire.com/file/pbu5rwcbgqnxiq1/Drive_20K_By_iiMoov.zip/file
  كروز تشنيقق 
 https://sharemods.com/klqulh30jl9t/cruze16.zip.html#google_vignette
 
-https://dragon.compress2go.com/ar/download-file/383bee3d-93c7-4118-92c5-6fad4114e76e/eba795aa-c943-405c-9109-d00c6b9b072a
+https://www.mediafire.com/file/1sznpx7tkc7p6ov/camry25_by_Meto_and_iEviil.zip/file
