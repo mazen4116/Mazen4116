@@ -46,5 +46,8 @@ https://www.mediafire.com/file/y8a8y24pbuewruw/Al-Jaradiah+-+Riyadh_modland.zip/
 
 ماب تاون الحديث
 https://modsfire.com/IEz6Wy5TAKQKF9K#
+ملف ماب الجرايده اخلع ماب 
 
 https://modsfire.com/pFbfk7UoA31qux5
+ملف الام جي
+https://cdn.discordapp.com/attachments/1053756177957265501/1349210422653227029/mg5.zip?ex=67d5915f&is=67d43fdf&hm=696ec7c7588a3f70603e53f5d0a75e171e0903a8047bae9ac32fb3258765c83c&
