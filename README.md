@@ -47,4 +47,4 @@ https://www.mediafire.com/file/y8a8y24pbuewruw/Al-Jaradiah+-+Riyadh_modland.zip/
 ماب تاون الحديث
 https://modsfire.com/IEz6Wy5TAKQKF9K#
 
-https://www.mediafire.com/file/pkc8desxj7cjxi5/Al-Jaradiah+-+Riyadh_modland+2.zip/file
+https://modsfire.com/pFbfk7UoA31qux5
