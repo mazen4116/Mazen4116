@@ -21,3 +21,7 @@ https://sharemods.com/6ogh0b9f7eil/2022_Lexus_ES.zip.html
 ملف ددسن 
 
 https://modsfire.com/61XzzOq75xZ188i
+
+ملف السيراتو
+
+https://www.mediafire.com/file/bikvkd14whzfper/CeratoFIR.zip/file
