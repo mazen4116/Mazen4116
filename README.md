@@ -18,10 +18,7 @@ https://www.mediafire.com/file/e6b7kos4u99ksl2/Meto-corolla.zip/file
 
 https://sharemods.com/6ogh0b9f7eil/2022_Lexus_ES.zip.html
 
-ملف ددسن 
+  
+الانترا 2006
 
-https://modsfire.com/61XzzOq75xZ188i
-
-ملف السيراتو
-
-https://www.mediafire.com/file/bikvkd14whzfper/CeratoFIR.zip/file
+https://modsfire.com/aC03im8zYuOh039
