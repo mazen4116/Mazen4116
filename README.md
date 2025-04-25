@@ -1,8 +1,6 @@
 
 
-كامري 21
-https://modsfire.com/Jl0V23C9B4Z8DUb
-
+ 
   
 
   
@@ -10,29 +8,5 @@ https://modsfire.com/Jl0V23C9B4Z8DUb
 
 https://modsfire.com/pFbfk7UoA31qux5
 
-ملف كورلا ٢٠٢١
-
-https://www.mediafire.com/file/e6b7kos4u99ksl2/Meto-corolla.zip/file
-
-ملف لكزس الصغير 
-
-https://sharemods.com/6ogh0b9f7eil/2022_Lexus_ES.zip.html
-
-  
-الانترا 2006
-
-https://modsfire.com/aC03im8zYuOh039
-
-ماب اسيتو 
-
-https://www.mediafire.com/file/mabtgz37nv06zoy/Ph_DRIVE-T7OELTKE.zip/file?dkey=35i3n3s4vt2&r=1946
-
-احورد 
-
-https://modsfire.com/O05a1e15E8pTxS1
-
-لومينا 
-
-https://modsfire.com/4D6P9SIW4F6pQDF
 
 
