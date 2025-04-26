@@ -30,6 +30,6 @@ https://www.mediafire.com/file/2f5132g5utwyo25/Maxima_1999_KHwylD.zip/file
 
 https://www.mediafire.com/file/klx209fhzkoz075/Passat_2016_KHwylD+2.zip/file
 
-كروز 
+هايلكس غمارتين 
 
-   https://www.mediafire.com/file/ax88ovmi2bdh0i0/Cruze_2017_KHwylD_حقوق_سيرفر_AOSKR_SERF_AR.zip/file
+https://www.mediafire.com/file/ptnmuwg6s64tcxm/Hilu16.zip/file
