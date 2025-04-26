@@ -30,6 +30,6 @@ https://www.mediafire.com/file/2f5132g5utwyo25/Maxima_1999_KHwylD.zip/file
 
 https://www.mediafire.com/file/klx209fhzkoz075/Passat_2016_KHwylD+2.zip/file
 
-ماب العثيم الشلي 
+كروز 
 
-https://www.mediafire.com/file/yhjxlqi6wnnmitb/Othaim_Al_Sali.zip/file
+   https://www.mediafire.com/file/ax88ovmi2bdh0i0/Cruze_2017_KHwylD_حقوق_سيرفر_AOSKR_SERF_AR.zip/file
