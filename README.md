@@ -1,10 +1,10 @@
+ماب السلي 
+
+https://www.mediafire.com/file/li0khbs4gxoz56b/‎⁨ماب+العثيم+السلي⁩.zip/file
+
+ملف ماب الجرايده اخلع ماب
 
 
-ملف ماب الجرايده اخلع ماب 
-
-ماب ماب السلي
-
-https://www.mediafire.com/file/15ixv3vba1kkb59/Othaim_Al_Sali.zip/file
 
 https://modsfire.com/pFbfk7UoA31qux5
 
