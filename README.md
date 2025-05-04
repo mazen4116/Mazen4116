@@ -25,6 +25,8 @@ https://www.mediafire.com/file/ocdkf08s46mupso/Land_Cruiser_j70_2023_KHwylD.zip/
 https://www.beamng.com/resources/road-grip-editor.15350/
 
 
+كامري 11 
 
+https://www.mediafire.com/file/fd0agtz3mf36ss7/Camry_2011_KHwylD+2.zip/file
 
 
